@@ -1,1 +1,2 @@
 # christine-adhiambo
+I'm Christine Adhiambo,undetaking programming course to be able to venture into the technology world and analyze its operations.All my projects attempts,mistakes correctionsand success would be all in here as we learn together. All under christineadhiambo51@gmail.com Thank you
